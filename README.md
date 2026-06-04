@@ -95,4 +95,4 @@ We may update this Privacy Policy from time to time. We will notify users of sig
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-**insane44gaming@gmail.com**
+**m0601262@gmail.com**
