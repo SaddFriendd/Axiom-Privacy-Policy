@@ -1,4 +1,4 @@
-# Axiom-Privacy-Policy
+# Community - https://discord.gg/U6JTAcUmhw
 
 # Privacy Policy
 
